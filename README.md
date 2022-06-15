@@ -1,5 +1,4 @@
-# 苟利国家生死以，岂因祸福避趋之
-
+该用户很懒，什么都没有留下。
 <!--
 **sohoorc/sohoorc** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
